@@ -1,4 +1,4 @@
-#  
+#  survive lava for brainrots Scripts custom offers the most advanced survive lava for brainrots Script, with auto-collect and one-hit kill. Perfect for
 
 
 
